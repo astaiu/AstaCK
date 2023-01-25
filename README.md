@@ -1,3 +1,3 @@
 
 
-### تابع : [Asta](https://t.me/ddssss) ###
+### Dev : [Asta](https://t.me/ddssss) ###
